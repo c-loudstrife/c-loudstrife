@@ -1,4 +1,4 @@
-# styx
+
 <p align="center">leave me alone..<center>
 
 <p align="center">@G0THIC!! dont copy/inspo my ponies - c + h is ok. <center>
